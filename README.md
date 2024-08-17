@@ -1,4 +1,4 @@
-# Noxx-Ways-
+# Noxx-Ways- Check weekly for new bat files!
 
 Funny Restart and 
 
